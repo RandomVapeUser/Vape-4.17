@@ -1,5 +1,7 @@
 # Vape-4.17
 
+The cracks posted were not created by me, I am simply distributing VapeV4 cracks on which I will attemp to check if their ratted or not and decide to post them if their not.
+
 | Sources & Other Vape Cracks
 - https://github.com/Kolhax/Vape-V4-Crack
 - https://firenox.ct8.pl/storage/#clients (KangarooLeaks)
