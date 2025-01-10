@@ -9,4 +9,4 @@ The cracks posted were not created by me, I am simply distributing VapeV4 cracks
 
 First release is from stormingmoon.
 Latest release is working on all forge clients.
-If you need help with the crack join the discord: https://discord.gg/aRCywrJaTj
+If you need help with the crack join this discord: https://discord.gg/aRCywrJaTj
